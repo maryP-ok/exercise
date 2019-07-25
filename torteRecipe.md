@@ -31,7 +31,7 @@ Combine the following:
 1 cup chopped walnuts  
 1 tsp vanilla  
 
-## Assembly and presentation##
+## Assembly and presentation
 
 1. Spread half of the filling on the bottom shortbread, top with shortbread. Spread the remaining filling and then top with the final shortbread.  
 2. Wrap in wax paper and chill over night.

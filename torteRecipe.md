@@ -2,9 +2,9 @@
 
 *Maybe* smet***ana*** torte.
 
-Layered squares of [shortbread](##Shortbread-layers) and [sour cream/walnut filling](##Filling). Solid, rich.
+Layered squares of [shortbread](#shortbread-layers) and [sour cream/walnut filling](#filling). Solid, rich.
 
-Although it can be eaten immediately after assembly, smetna torte should be refrigerated for a day. This changes the texture and makes it easy to cut into pieces, which should be cut into an inch or inch-and-a-half square.   
+Although it can be eaten immediately after assembly, it's difficult to cut into squares. Smetna torte should be refrigerated for a day. This changes the texture (the shortbread loses its crunch) and makes it easy to cut into pieces, which should an inch or inch-and-a-half square.   
 Smetna torte freezes well.
 
 ## Shortbread layers

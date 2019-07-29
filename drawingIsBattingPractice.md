@@ -15,7 +15,9 @@ Drawings produced at drawing practice are generally not precious. The drawings I
 Why do I keep practice drawings? For some not-so-good reasons: to prove I can do something; to be able to prove it to someone else. Narcissism, self promotion, all those self things. And for one good reason, to do it better. Which is why anyone practices anything. 
 
 ---
-<a name="1">1</a>	In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
-(Unfortunately, even though I agree with it, hearing *practice makes perfect* would not make my ego a happier camper.)
+#### Footnotes
 
-<a name="1">2</a>	At the same time, an enormous output of artwork is indicative of a real artist. *So much creativity.*
+#### <a name="1"><sup>1</sup></a> ####	In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
+	(Unfortunately, even though I agree with it, hearing *practice makes perfect* would not make my ego a happier camper.)
+
+<a name="1"><sup>2</sup></a>	At the same time, an enormous output of artwork is indicative of a real artist. *So much creativity.*

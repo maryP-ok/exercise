@@ -17,7 +17,22 @@ Why do I keep practice drawings? For some not-so-good reasons: to prove I can do
 ---
 #### Footnotes
 
-#### <a name="1"><sup>1</sup></a> ####	In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
-	(Unfortunately, even though I agree with it, hearing *practice makes perfect* would not make my ego a happier camper.)
+<a name="1"><sup>1</sup></a>	>In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
+>(Unfortunately, even though I agree with it, hearing *practice makes perfect* would not make my ego a happier camper.)
 
-<a name="1"><sup>2</sup></a>	At the same time, an enormous output of artwork is indicative of a real artist. *So much creativity.*
+<a name="1"><sup>2</sup></a>	>At the same time, an enormous output of artwork is indicative of a real artist. *So much creativity.*
+
+<table>
+<tr>
+<td><a name="1"><sup>1</sup></a></td>
+<td>In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age, I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.<br>
+(Unfortunately, even though I agree with it, hearing *practice makes perfect* would not make my ego a happier camper.)</td>
+</tr>
+<tr>
+<td><a name="1"><sup>2</sup></a></td>
+<td>At the same time, an enormous output of artwork is indicative of a real artist. *So much creativity.*</td>
+</tr>
+</table>
+
+
+

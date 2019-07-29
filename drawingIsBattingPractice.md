@@ -8,13 +8,13 @@ Like some other truly nice people I know, she said "enjoy your class" when I hea
   
 Though well intentioned, calling practice a *class* drives me a wee bit crazy.[<sup>1</sup>](#1)  I'm suspicious of the assumption that I am taking up a new hobby. I haven't told my well wishers  about the amount of effort I've already put into drawing, so there is no reason that they would think otherwise.  
 
-Practice, as in training by repeated exercise, isn't a big theme in art history. It does not seem to jive with the popular persona of the visual artist, much less a *creative* one:  for the talented, art skills are innate or learned once and retained forever. [<sup>2</sup>](#2)  When artists speak of their "practice," they commonly use the term to refer to the work they engage in——like a doctor or lawyer's practice, a profession——, rarely a series of exercises to cement a skill or get in *the zone*.   
+Practice, as in training by repeated exercise, isn't a big theme in art history. It does not seem to jive with the popular persona of the visual artist, much less a *creative* one:  genius is innate, technique is an aspect of genious. [<sup>2</sup>](#2)  When artists speak of their "practice," they commonly use the term to refer to the work they engage in——like a doctor or lawyer's practice, a profession——, rarely a series of exercises to cement a skill or get in *the zone*.   
 
-Drawings produced at drawing practice are generally not precious. The drawings I produce are certainly not creative expression. If I wanted to express myself creatively, why would I draw a model posed and lit by someone else? If I have an idea for a picture, I generally don't leave it up to someone else to give me its subject. If I want to explore colour or materials or technique during drawing practice, the goal is to add more skills to my toolbox.  
+Drawings I produce at drawing practice are not precious (although at this point they represent a lot of hours of work). And they are not particularly creative. If I wanted to express myself creatively, why would I draw a model posed and lit by someone else? If I have an idea for a picture, I generally don't leave it up to someone else to give me its subject. If I want to explore colour or materials or technique during drawing practice, the goal is to add more skills to my toolbox.  
 
 Why do I keep practice drawings?  
 For some not-so-good reasons: to prove I can do it to someone else. Narcissism, self promotion, all those selfie things.   
-And for good reasons: to prove to myself that I can do it; to analyse what works and doesn't work so that I can do it better.  Which is why anyone practices anything. 
+And for good reasons: to prove to myself that I can do it; to see what works and doesn't work so that I can do it better.  Which is why anyone practices anything. 
 
 <img src="images/portraits at Pink.jpg">
 

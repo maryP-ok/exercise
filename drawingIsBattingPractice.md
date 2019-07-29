@@ -5,7 +5,8 @@
 I told my excellent boss that the other day.  
 
 Like some other truly nice people I know, she said "enjoy your class" when I headed off to an instructor-less drawing session. After all, someone *going to drawing* must be attending a class.  
-I know it's well intentioned, but calling practice a *class* drives me a wee bit crazy.[^1]  I'm suspicious of the assumption that I am taking up a hobby: learning to draw. I haven't told my well wishers  about the amount of effort I've already put into drawing, so there is no reason that they would think otherwise.  
+  
+I know it's well intentioned, but calling practice a *class* drives me a wee bit crazy.[<sup>1<sup>](#1)  I'm suspicious of the assumption that I am taking up a hobby: learning to draw. I haven't told my well wishers  about the amount of effort I've already put into drawing, so there is no reason that they would think otherwise.  
 
 [^1]: In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
 
@@ -19,4 +20,4 @@ Why do I keep practice drawings? For some not-so-good reasons: to prove I can do
 -------------
 *In all honesty, my ego goes postal.  It interprets "enjoy your class" as an attack: taking a drawing class is something middle class, middle aged ladies do because, at this stage in their lives, they have a little extra leisure time. Therefore, because I am female and of a certain age,  I am likely to be only a hobbyist; I am unlikely to be, by objective measure, good.
 
-(Unfortunately, even though I agree with it, hearing  "practice mak
+(Unfortunately, even though I agree with it, hearing  "practice makes perfect" would not make my ego a happier camper.)

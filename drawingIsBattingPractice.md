@@ -16,6 +16,8 @@ Why do I keep practice drawings?
 For some not-so-good reasons: to prove I can do something; to be able to prove it to someone else. Narcissism, self promotion, all those self things.   
 And for good reasons: to analyse what works and doesn't work so that I can do it better. Which is why anyone practices anything. 
 
+<img src="images/portraits at pink.jpg">
+
 ---
 #### Footnotes
 

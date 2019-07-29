@@ -12,7 +12,7 @@ Practice, as in training by repeated exercise, isn't a big theme in art history.
 
 Drawings produced at drawing practice are generally not precious. The drawings I produce are certainly not creative expression. If I wanted to express myself creatively, why would I draw a model posed and lit by someone else? If I have an idea for a picture, I generally don't leave it up to someone else to give me its subject. If I want to explore colour or materials or technique during drawing practice, the goal is to add more skills to my toolbox.  
 
-Why do I keep practice drawings? 
+Why do I keep practice drawings?  
 For some not-so-good reasons: to prove I can do something; to be able to prove it to someone else. Narcissism, self promotion, all those self things.   
 And for good reasons: to analyse what works and doesn't work so that I can do it better. Which is why anyone practices anything. 
 
